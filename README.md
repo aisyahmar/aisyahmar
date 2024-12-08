@@ -2,7 +2,7 @@
 # Hi there! 👋 I'm Aisyah  
 
 🎓 **IT Student** | 📚 Currently pursuing a **Bachelor in Information Technology with Businuss Managment (Honours) at UCTATI**  
-📅 **In third Year 3, Semester 1**  
+📅 **In third Year, Semester 1**  
 
 ---
 
